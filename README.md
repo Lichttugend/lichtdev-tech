@@ -1,1 +1,0 @@
-# lichtdev-tech
